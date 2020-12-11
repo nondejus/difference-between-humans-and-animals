@@ -1,1 +1,0 @@
-# difference-between-humans-and-animals
